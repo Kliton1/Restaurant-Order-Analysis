@@ -1,4 +1,3 @@
-![Recommended Analysis ](https://github.com/user-attachments/assets/aabb6413-7caa-4573-9f94-dad21af21fc7)
 
 ![Objective 1 ](https://github.com/user-attachments/assets/da20f110-c0f0-4558-917a-55dad72d94b1)
 
